@@ -23,3 +23,7 @@ rentry made by @seacrets
 ‹𝟹
 
 ![megusibus](https://komarev.com/ghpvc/?username=yuusibu&color=4593f8)
+
+
+
+![image alt](https://cdn.phototourl.com/free/2026-04-07-dab573b0-e2de-447a-911b-a02ae7e0865d.png)
