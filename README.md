@@ -15,4 +15,4 @@ c+h always encouraged 𓏵 no dni besides the basic stuff, and dont be weird
 might not always respond, so i'm sorry about that ><
 
 
-[𝗔𝗧𝗔𝗕𝗢𝗢𝗞](https://vascoscoscos.atabook.org)
+[𝗔𝗧𝗔𝗕𝗢𝗢𝗞](https://vascoscoscos.atabook.org)  𐂯  [𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/vascos)
