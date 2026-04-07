@@ -17,4 +17,4 @@ might not always respond, so i'm sorry about that ><
 
 [𝗔𝗧𝗔𝗕𝗢𝗢𝗞](https://vascoscoscos.atabook.org)  𐂯  [𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/vascos)
 
-![profileviews](https://komarev.com/ghpvc/?username=yuusibu&color=4593f8)
+![megusibus](https://komarev.com/ghpvc/?username=yuusibu&color=4593f8)
