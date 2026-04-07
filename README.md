@@ -19,5 +19,6 @@ might not always respond, so i'm sorry about that ><
 <h6 align="center">
 rentry made by @seacrets
 
+‹𝟹
 
 ![megusibus](https://komarev.com/ghpvc/?username=yuusibu&color=4593f8)
