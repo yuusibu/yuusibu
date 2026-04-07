@@ -1,4 +1,3 @@
-![image alt](https://cdn.phototourl.com/free/2026-04-07-9ceb6f82-af24-42cf-a027-c23d83800206.png)
 
 <h4 align="center">
 
