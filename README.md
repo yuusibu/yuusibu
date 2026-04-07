@@ -24,6 +24,6 @@ rentry made by @seacrets
 
 ![megusibus](https://komarev.com/ghpvc/?username=yuusibu&color=4593f8)
 
-
+![image alt](https://cdn.phototourl.com/free/2026-04-07-6cdc39ea-e3cd-4e51-934e-fed081aa0833.png)
 
 ![image alt](https://cdn.phototourl.com/free/2026-04-07-dab573b0-e2de-447a-911b-a02ae7e0865d.png)
