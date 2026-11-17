@@ -17,7 +17,7 @@ lmk if I follow someone problematic
 
 (..◜ᴗ◝..)
 
-if you wanna be friends
+or if you wanna be friends
 
 
   ![Image alt](https://file.garden/asSIRhOOwG_05lgc/qual.webp)
